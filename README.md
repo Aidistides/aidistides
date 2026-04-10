@@ -1,4 +1,4 @@
-## Enotrium
+## notrium.org
 
 ##### Now I shall go 
 ##### far and far into the North, 
@@ -6,4 +6,4 @@
 
 
 ### A New Mesopotamia Pending
-www.enotrium.org
+
